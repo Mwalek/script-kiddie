@@ -1,1 +1,1 @@
-# script-kiddie
+# Script Kiddie
